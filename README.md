@@ -2,7 +2,7 @@
 
 WEASC works alongside with eastern RAAN society ( eastern RAAN society accepts every race as long as they follow their transhumanism biohackig guidelines as diversity is the core strength of raan)
 
-white eastern asian support community / white eastern African support community
+white eastern asian support community (collective)  / white eastern African support community(collective)
 
 
 - A community and international support network for oriental east asian phenotype or mixed east asian people or those that exhibit these genetic phenotype traits 
