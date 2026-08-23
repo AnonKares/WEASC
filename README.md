@@ -5,7 +5,7 @@ WEASC works alongside with eastern RAAN society ( eastern RAAN society accepts e
 white eastern asian support community / white eastern African support community
 
 
-- A community and international support network for east asian phenotype or mixed east asian people or those that exhibit these genetic phenotype traits 
+- A community and international support network for oriental east asian phenotype or mixed east asian people or those that exhibit these genetic phenotype traits 
 
 This includes the identification, extraction, support and eventual recruitment of those with these traits to the group as well as the eastern cultural celebration and confidence, leadership, entrepreneurial hustling, financial wealth management & encouragement of members with the beauty standard of Korean kpop idols and mixed race west east Asian look
 
