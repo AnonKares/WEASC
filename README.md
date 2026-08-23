@@ -1,5 +1,7 @@
 # WEASC
 
+WEASC works alongside with eastern RAAN society ( eastern RAAN society accepts every race as long as they follow their transhumanism biohackig guidelines as diversity is the core strength of raan)
+
 white eastern asian support community / white eastern African support community
 
 
