@@ -8,7 +8,7 @@ white eastern asian support community / white eastern African support community
 This includes the identification, extraction, support and eventual recruitment of those with these traits to the group as well as the eastern cultural celebration and confidence encouragement of members with the beauty standard of Korean loop idols and mixed race west east Asian look
 
 Current targets:
-- 8 white European eastern phenotype people
+- 8 white blond or brown or red haired or blue eyed European eastern phenotype people
 - 2 black east Asian phenotype people - these will always form a minority ( accounting for less than 2% of the group)
 - 20 dark to light brown east asian people with skin pigmentation that can change if they stay indoors
 - 20 white east Asian phenotype people
