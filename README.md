@@ -3,9 +3,9 @@
 white eastern asian support community / white eastern African support community
 
 
-- A community and international support network for east asian phenotype or mixed east asian people or those that exhibit these genetic phenotype traits.
+- A community and international support network for east asian phenotype or mixed east asian people or those that exhibit these genetic phenotype traits 
 
-This includes the idebtification, extraction, support and eventual recruitment of those with these traits to the group.
+This includes the identification, extraction, support and eventual recruitment of those with these traits to the group as well as the eastern cultural celebration and confidence encouragement of members with the beauty standard of Korean loop idols and mixed race west east Asian look
 
 Current targets:
 - 8 white European eastern phenotype people
