@@ -17,6 +17,8 @@ Linked subsidiary branch goups include:
 - innuit and circumpole support party
 - Hazaragi support party
 
+The group aims to currently disrupt the colonisation of other planets by non eastern phenotype people including elon musk working alongside Eastern raan society
+
 Current targets:
 - 8 white blond or brown or red haired or blue eyed European eastern phenotype people
 - 2 black east Asian phenotype people - these will always form a minority ( accounting for less than 2% of the group)
