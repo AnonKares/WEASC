@@ -9,6 +9,14 @@ white eastern asian support community (collective)  / white eastern African supp
 
 This includes the identification, extraction, support and eventual recruitment of those with these traits to the group as well as the eastern cultural celebration and confidence, leadership, entrepreneurial hustling, financial wealth management & encouragement of members with the beauty standard of Korean kpop idols and mixed race west east Asian look
 
+Linked subsidiary branch goups include:
+- HEFAP (Hot eastern femboy asian persuasion)
+- EFA (Eastern Female Aristocracy)
+- ERA scheme (Eastern Relocation Aid)
+- NNESP (Nepal North east india support party)
+- innuit and circumpole support party
+- Hazaragi support party
+
 Current targets:
 - 8 white blond or brown or red haired or blue eyed European eastern phenotype people
 - 2 black east Asian phenotype people - these will always form a minority ( accounting for less than 2% of the group)
